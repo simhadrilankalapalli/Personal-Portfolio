@@ -1,6 +1,6 @@
 Home Page:
 
-![image](https://github.com/user-attachments/assets/4e0051ec-6a52-40dc-808c-83ec476c0619)
+![image](https://github.com/user-attachments/assets/a89e3060-b540-48d9-8866-fd38cd40737e)
 
 
 About Me:
